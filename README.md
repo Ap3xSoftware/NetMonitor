@@ -54,5 +54,7 @@ Este es un software de grado comercial cerrado. El código fuente completo (Back
 
 ¿Cómo comprar?
 
+https://forms.office.com/r/jH4Y0PVzjT?origin=lprLink
+
 
 🌐 https://github.com/Ap3xSoftware/NetMonitor
