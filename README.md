@@ -44,6 +44,14 @@ Conexión a la red local (LAN/WLAN)
 Este es un software de grado comercial cerrado. El código fuente completo (Backend PHP, Base de Datos y Código de Agente Python listo para compilar) está disponible para su compra.
 
 💳 Precio del Código Fuente: $450.25 USD
+*************************************************
+Todos los Pagos son por Binance 
+***OJO***
+
+LA CUENTA DE BINNACE TIENE QUE TENER ALMENOS 8 REFERENCIAS DE COMPRAS
+--NO ACEPTO PAGOS POR CUENTAS NUEVAS--
+**Esto por motivo de Seguridad de Bloqueo de cuentas personales**
+**************************************************
 
 ¿Qué incluye la compra?
 
